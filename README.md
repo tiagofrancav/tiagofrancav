@@ -19,7 +19,7 @@ I’m always open to collaborating on innovative AI projects, contributing to op
 
 ## How to Reach Me
 
-- **Email:** tiagofrancav@example.com
+- **Email:** tiagofrancaaa@gmail.com
 - **LinkedIn:** [linkedin.com/in/tiagofrancav](https://www.linkedin.com/in/tiagofrancav/)
 - **Instagram:** [@tiagofrancav](https://instagram.com/tiagofrancav)
 
